@@ -1,0 +1,1 @@
+# IdeaSolitaire.io
